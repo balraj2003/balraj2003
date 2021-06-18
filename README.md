@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @balraj2003
+- 👀 I’m interested in python coding (im a beginner) and new ingenious bussiness ideas
+- 🌱 I’m currently trying to learn python coding by self
+- 💞️ I’m looking to collaborate on and new inovative ideas and projects in whch i can be of some assiatance
+- 📫 How to reach me you can email me at balrajriotavanandi@gmail.com 
